@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Automation Systems Development Specialist @ArcelorMittal<br>👯 I’m looking to collaborate on AI<br>🌱 I’m Control and Automation Engineer and Master's Student in Control and Automation Engineering at @IFES <br>⚡ Video game enthusiast
+🔭 I’m currently working on Automation Systems Development Specialist @ArcelorMittal<br>🌱 I’m Control and Automation Engineer and Master's Student in Control and Automation Engineering at @IFES <br> 👯 I’m looking to collaborate on AI<br>
 
 
 ## 🌐 Socials:
